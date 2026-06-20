@@ -44,7 +44,7 @@ Sou o motor criativo e técnico por trás de:
 ---
 ### 🤝 Conecte-se Comigo! (Let's Connect)
 
-Se você está construindo algo em *Blockchain*, precisa otimizar dados com *Power BI*, ou simplesmente quer saber qual será o próximo set de **Psytrance** que vai te fazer dançar até a alma, vamos conversar. 💡🎵
+Se você está construindo algo em *Blockchain*, precisa otimizar dados com *Power BI*, ou simplesmente quer saber qual será o próximo set de **Psytrance** que vai te fazer dançar até o amanhecer, vamos conversar. 💡🎵
 
 *   📧 **Email:** charlles.franco@outlook.com
 *   🔗 **LinkedIn:** https://www.linkedin.com/in/charlles-franco/
